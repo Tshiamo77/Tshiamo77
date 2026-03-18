@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tshiamo77
 - 👀 I’m interested in programming and AI
-- 🌱 I’m currently still in high school and self teaching myself coding 
+- 🌱 I am a second year Digital Arts student
 - 
 - 📫 How to reach me motlobatshiamo30@gmail.com
 
